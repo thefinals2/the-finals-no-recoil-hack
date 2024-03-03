@@ -6,7 +6,7 @@
 </h1>
 
 # The-Finals-No-Recoil-Hack
-
+The finals no recoil hack. This software is the safest no recoil tool you can get to make any gun in any game zero recoil
 
 # Watch the below videos for more Information
 ➡️ Why Undetected: https://youtu.be/b96gAJefihI<br>
